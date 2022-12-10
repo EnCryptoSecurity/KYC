@@ -1,0 +1,2 @@
+# KYC
+Any kind of SCAM, FRAUDS and other ILLEGAL ACTIVITIES that doesn't comply the ANTI-MONEY LAUNDERING (AML) LAWS will be resulting to PROJECT OWNER'S IDENTITY PUBLICATION.
